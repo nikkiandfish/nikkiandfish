@@ -1,5 +1,5 @@
-Hello there!
+Hello there! 😄 
 
-* PhD student in math, working on probability
+* 🎓 PhD student in math, working on probability
 * love singing 🎙️🎤
-* ❤️ married 💍 [@dexhunter](https://github.com/dexhunter) ❤
+* ❤️ married 💍 [@dexhunter](https://github.com/dexhunter) 
